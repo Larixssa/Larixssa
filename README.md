@@ -5,4 +5,4 @@
 * No life programmer.
 * Feel free to ask me to collab with your projects~ 💜
 
-~ Larissa, xox.
+; Larissa <3.
